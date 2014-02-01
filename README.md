@@ -11,7 +11,7 @@ AND HERE THEY ARE
 
 Why do people like to see electricity so much?
 
-  *The sightings are often very shocking*
+  *The sightings are often very shocking.*
 
 ---
 
