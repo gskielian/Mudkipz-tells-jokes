@@ -39,8 +39,8 @@ What did godzilla say when he ate the nuclear power plant?
 
 ---
   
-**Anode**:  "I'm called the 'anode' because anions _gather around_ the anode" 
+**Anode**:  I'm called the 'anode' because anions _gather around_ the anode.
 
-**Cathode**:  "are you sure" 
+**Cathode**:  Are you sure?
 
-**Anode**: "I'm positive"
+**Anode**:  I'm positive!
