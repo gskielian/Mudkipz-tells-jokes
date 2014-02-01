@@ -6,8 +6,9 @@ JOKES ARE AWESOME
 ...and here at techlab, we have some jokes, usually about electronics, but can spread to a wide subject of things outside class.
 
 
-AND HERE THEY ARE
+AND HERE THEY ARE!
 
+---
 
 Why do people like to see electricity so much?
 
