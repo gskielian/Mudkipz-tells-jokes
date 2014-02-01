@@ -24,3 +24,6 @@ What did the baby lightbulb say to the mommy lightbulb?
 What did godzilla say when he ate the nuclear power plant?
   Shocking.
   
+Anode"  "I'm called the 'anode' because anions _gather around_ the anode" 
+Cathode:  "are you sure" 
+Anode: "I'm positive"
