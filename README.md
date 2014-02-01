@@ -24,3 +24,4 @@ What did the baby lightbulb say to the mommy lightbulb?
 What did godzilla say when he ate the nuclear power plant?
   Shocking.
   
+So Cathode asks an Anode, "are you sure" anode replies "I'm positive"
