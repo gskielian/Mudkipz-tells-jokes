@@ -11,31 +11,31 @@ AND HERE THEY ARE
 
 Why do people like to see electricity so much?
 
-  The sightings are often very shocking
+  *The sightings are often very shocking*
 
 ---
 
 Why don't hipsters like electricity?
 
-  It's too mainstream.
+  *It's too mainstream.*
 
 ---
 
 What happened to the person who discovered electricity?
 
-  He was in for quite a shock.
+  *He was in for quite a shock.*
 
 ---
   
 What did the baby lightbulb say to the mommy lightbulb?
 
-  I love you watts and watts.
+  *I love you watts and watts.*
 
 ---
   
 What did godzilla say when he ate the nuclear power plant?
 
-  Shocking.
+  *Shocking.*
 
 ---
   
